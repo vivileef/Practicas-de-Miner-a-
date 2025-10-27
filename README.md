@@ -1,1 +1,1 @@
-# Practicas-de-Miner-a-
+# Practicas Mineria
